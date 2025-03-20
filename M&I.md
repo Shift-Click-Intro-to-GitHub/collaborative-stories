@@ -4,3 +4,4 @@ She noticed the day was shine and bright
 She walked passed the flower boquet that was shining on the floor with glitter
 She grabbed the bouquet to give to your mother 
 while waliking back to home she noticed something different 
+On the floor she saw some money it felt like her lucky day which she has never had before
