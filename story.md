@@ -7,4 +7,5 @@ T - but the usual coffee shop Zazuu always liked so much turned them away at the
 
 N - Determined to not let this ruin his day, Zazuu started thinking. He started planning. He started scheming.
 
+T- rubbing his hands inconspicuously together, he went to the next coffee shop, the one he liked a little bit less, and at the threshhold, once again, was turned away by an indifferent wave of the owners hand. 
 
