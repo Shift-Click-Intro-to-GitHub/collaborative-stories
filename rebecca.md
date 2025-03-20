@@ -1,3 +1,3 @@
 A wombat drank some coffee brewed with Monster and had a heart attack.
 He died due to his poor life decisions and bacame a ghost.
-https://github.com/Shift-Click-Intro-to-GitHub/coll
+https://github.com/Shift-C
